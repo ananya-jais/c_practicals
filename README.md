@@ -7,7 +7,13 @@
 # Ques_3 
 ![image](https://github.com/user-attachments/assets/dd87ec00-9a39-4f2f-bd3c-e5e97809c0d9)
 
-#Ques_4 
+# Ques_4 
+![image](https://github.com/user-attachments/assets/9ba23f91-d5f2-40af-afdc-2b3b9128d05d)
+![image](https://github.com/user-attachments/assets/ef81b15f-b3c7-4049-b8c6-fb5ad59c5e54)
+![image](https://github.com/user-attachments/assets/0ba55c51-9d0e-42ec-8124-a3718aa8a7e2)
+![image](https://github.com/user-attachments/assets/0dcb1bf4-492d-4d58-9e98-be1ba4b0054d)
+![image](https://github.com/user-attachments/assets/a6245068-4201-4928-9d72-cb4a45e1c751)
+
 
 # Ques_5 
 ![image](https://github.com/user-attachments/assets/2faf12ec-38da-4ba5-a614-7661b01d8a54)
