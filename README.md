@@ -37,3 +37,10 @@
 # Ques_10
 ![image](https://github.com/user-attachments/assets/5d051b46-3995-494b-a994-36ac8d9efab1)
 ![image](https://github.com/user-attachments/assets/a926f96c-46f7-49ba-b683-8c1eaa17fa61)
+
+# Ques_11
+![image](https://github.com/user-attachments/assets/af1df16e-5249-478d-bdd5-a3146647cf50)
+![image](https://github.com/user-attachments/assets/f1cd4d19-16b2-4da5-9c72-8ddf546a8906)
+
+# Ques_12
+![image](https://github.com/user-attachments/assets/1844fb08-5d53-4886-a4d0-833d20a2e99c)
